@@ -1,4 +1,4 @@
-### Seja bem vindo(a) ao meu perfil!! <3
+### ..... <3
 
 - 🤍 Currently studying programming
 - 🤍 Learning HTML/CSS 
